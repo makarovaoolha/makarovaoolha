@@ -1,12 +1,12 @@
 jjlkkl- 👋 Hi, I’m @makarovaoolha
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...zczx
+- 👀 I’m interested in ...v
+- 🌱 I’m currently learning ...zv
+- 💞️ I’m looking to cvcasollaborate on ...zczx
 - 📫 How to reach me ...sdxz
-scaasdsadedczx
+scaasdsadedczxv
 <!---
-makarovaoolha/makarovaoolha is a ✨ special ✨ repository because its `REAzvbwDME.md` (this file) appears on your GitHub profile.
-You can click csssthe Preview link to take a look at your changes.asdasdas
---->
+makarovaoolha/makarovaoolha is a ✨ special ✨ repository because its `REAzvbwDME.md` (this file) appears on your GitHvzxcub profile.asc
+You can click csssthe Preview link to take a look at your changes.asdasdazxcs
+--->vc
 ,nyui
 d
