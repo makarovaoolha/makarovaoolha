@@ -1,6 +1,6 @@
 jjlkkl- 👋 Hi, I’m @makarovaoolha
 - 👀 I’m interested in ...v
-- 🌱 I’m currently learning ...zv
+- 🌱 I’m currently learning ...zvc
 - 💞️ I’m looking to cvcasollaborate on ...zczx
 - 📫 How to reach me ...sdxz
 scaasdsadedczxv
