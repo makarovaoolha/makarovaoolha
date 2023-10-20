@@ -1,6 +1,6 @@
 jjlkkl- 👋 Higdfzcxzczxcdsc
 - 🌱 I’m fdg on kjh...zczxxcаvsdasdcxzczadвфівсчooяcxvfvxcxcxzvz
-- 📫 How toxcv rcvbveach vcxve ...sdxzвапads
+- 📫 How toxcv rcvbveach vcxvexczcxz ...sdxzвапads
 scaasdsadedczxvhsaddfgxcvямясzczxczxczxczzcxczxxc
 <!---hgsadfgdfsadsaxcvvcb
 makarovaoolha/makarovaoolячсчha is a ✨ сячсspecial ✨ repository becauxzcxzcbxcvse idsts `REAzvbwDME.md` (this file) appears on your GitHvcxvxczxcub profile.asccx
