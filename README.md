@@ -1,5 +1,5 @@
 jjlkkl- 👋 Higdfzcxzczxcdscbmnbnbmn
-- 🌱 I’m fdg on kjh...zczxxcаvsdasdcxzczadвфsadasdіhkgjвсчooяcxvfasdasdvxcxcxzvz
+- 🌱 I’m fdg on kjh...zczxxcаvsdasdcxzczadвфsadasdіhkgjвсчooяcxvfasdasdvxcxcx
 - 📫 How toxcv rcvbveach daszxcvcxvexфівіфвіфвфівфівczcxasdasdz ...sdxzвапadsasdasd
 scaasdsadedczxvhsaddfgxcvямясzczxczxczxczzфівфвіфcxczxxccx
 <!---hgsadfgdfsadsaxcvvcb
